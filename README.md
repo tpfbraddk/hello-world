@@ -1,2 +1,2 @@
 # hello-world
-Experimental education
+So much as it depends on you, live peaceably with all.
